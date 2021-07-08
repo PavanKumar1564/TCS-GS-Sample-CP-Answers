@@ -1,1 +1,1 @@
-# TCS-GS-Sample-CP-Question & Answers
+# TCS GS Sample CP Question & Answers
